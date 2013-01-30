@@ -1,6 +1,6 @@
 test 
 
-Naidoo is a 390 german channel loser
+Naidoo is a 3210 german channel loser
 Dc rules ok
 ====
 macs are shite
